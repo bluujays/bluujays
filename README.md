@@ -1,5 +1,7 @@
-![](h)
-
+- hello im edo or dave !
+- currently tryna make friends so don't hesitate to whisper or int with me !
+- usually in undertale or homestuck area !
+- check my strawpage !
 <!--
 **bluujays/bluujays** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
