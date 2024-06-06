@@ -1,5 +1,11 @@
-## Hi there 👋
+hello im edo or dave !
 
+currently tryna make friends so don't hesitate to whisper or int with me !
+
+usually in the undertale or homestuck area !
+here's my 
+
+[strawpage](https://bladekindd.straw.page) !
 <!--
 **bluujays/bluujays** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
